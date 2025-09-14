@@ -1,1 +1,2 @@
-Link do diagrama: https://excalidraw.com/#json=Om6xdhxuUPMKBmPyNYn89,Ah0kGFv_uglNHLgVaR4Q-g
+
+LInk do diagrama: https://excalidraw.com/#room=e3b236442761e329df02,ZfQC6wjspoFEAD_BiNAwBw
